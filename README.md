@@ -1,5 +1,4 @@
-## Hi there 👋
-#I'm Bipin Kalakheti
+## Hi there 👋 
 
 
 ## 💫 About Me:
